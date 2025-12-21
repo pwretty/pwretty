@@ -15,3 +15,6 @@
 ₊ [prns.cc](https://pronouns.cc/@nargacuga)
 
 </div>
+<div align="center"> 
+⊹
+</div>
