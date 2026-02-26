@@ -17,7 +17,7 @@
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   !!ㅤ[rentry](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎ ‎[ata](https://qlucard.atabook.org/)ㅤㅤ‎ [prnscc](https://pronouns.cc/@qlucard)ㅤㅤ!!‎
+ ‎ ‎ ‎  ‎ ‎  ‎   !!ㅤ[main rentry](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2nd rentry](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[ata](https://qlucard.atabook.org/)ㅤㅤ‎ [prnscc](https://pronouns.cc/@qlucard)ㅤㅤ!!‎
 
 </div>
 <div align="center">
