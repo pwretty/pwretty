@@ -11,13 +11,13 @@
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/17b4209bbd0f2a9b051abc06e320b6d137193ecd/Untitled81_20260228015230.png)
+![](https://github.com/pwretty/pwretty/blob/fc11058ed3862ce991d22a368899f360463f0237/Untitled82_20260228125447.png)
 
 <p align="center">
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://qlucard.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
+ ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/monsterhunterwiIds) ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://qlucard.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
 
 </div>
 <div align="center">
