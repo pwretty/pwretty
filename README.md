@@ -5,7 +5,7 @@
 <p align="center">
 <div align="center">
   
-<img src="https://komarev.com/ghpvc/?username=real-value&color=de64a9&style=flat+square&label=(≧◡≦)+♡+," /> ㅤㅤㅤㅤI ♡ MY FRIENDS
+<img src="https://komarev.com/ghpvc/?username=real-value&color=000000&style=flat+square&label=the+goats" /> ㅤㅤㅤㅤI ♡ MY FRIENDS
 
 <p align="center">
   
@@ -17,7 +17,7 @@
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   !!ㅤ[main rentry](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2nd rentry](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[ata](https://qlucard.atabook.org/)ㅤㅤ‎ [prnscc](https://pronouns.cc/@qlucard)ㅤㅤ!!‎
+ ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[main rentry](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2nd rentry](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[ata](https://qlucard.atabook.org/)ㅤㅤ‎ [prnscc](https://pronouns.cc/@qlucard)ㅤㅤ‎
 
 </div>
 <div align="center">
