@@ -1,23 +1,23 @@
 
 <div align="center">
-  (^_−)☆
+
 
 <p align="center">
 <div align="center">
   
-<img src="https://komarev.com/ghpvc/?username=real-value&color=000000&style=flat+square&label=the+goats" /> ㅤㅤㅤㅤI ♡ MY FRIENDS
+<img src="https://komarev.com/ghpvc/?username=real-value&color=000000&style=flat+square&label=the+goats" /> ㅤㅤㅤㅤluv my friends 
 
 <p align="center">
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/d021fb71f08ff06b0f2b3ac16c6a6e00fdea85a8/Untitled80_20260202000756.png)
+![](https://github.com/pwretty/pwretty/blob/17b4209bbd0f2a9b051abc06e320b6d137193ecd/Untitled81_20260228015230.png)
 
 <p align="center">
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[main rentry](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2nd rentry](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[ata](https://qlucard.atabook.org/)ㅤㅤ‎ [prnscc](https://pronouns.cc/@qlucard)ㅤㅤ‎
+ ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/monsterhunterwiIds)ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://qlucard.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
 
 </div>
 <div align="center">
