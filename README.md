@@ -17,7 +17,7 @@
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/monsterhunterwiIds) ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://127.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
+ ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/x127) ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://127.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
 
 </div>
 <div align="center">
