@@ -11,7 +11,7 @@
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/fc11058ed3862ce991d22a368899f360463f0237/Untitled82_20260228125447.png)
+![](https://github.com/pwretty/pwretty/blob/a9678e4723e5ee9dedb81631dd7a6ee84ad2401d/Untitled87_20260509234150.png)
 
 <p align="center">
 
