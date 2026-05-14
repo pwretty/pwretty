@@ -5,19 +5,21 @@
 <p align="center">
 <div align="center">
   
-<img src="https://komarev.com/ghpvc/?username=real-value&color=000000&style=flat+square&label=the+goats" /> ㅤㅤㅤㅤluv my friends 
+<img src="https://komarev.com/ghpvc/?username=real-value&color=0e4ac2&style=flat+square&label=dopeboy" />
 
 <p align="center">
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/a9678e4723e5ee9dedb81631dd7a6ee84ad2401d/Untitled87_20260509234150.png)
+![](https://github.com/pwretty/pwretty/blob/359bd0f48cc5b82297c37e5c7f0de16bf6f521a1/IMG_3025.png)
 
 <p align="center">
 
 <div align="center">
 
- ‎ ‎ ‎  ‎ ‎  ‎   ㅤ[1.0](https://rentry.co/x127) ㅤㅤ‎[2.0](https://rentry.co/monsterhunterwilds)ㅤㅤ‎ ‎[3.0](https://127.atabook.org/)ㅤㅤ‎ [4.0](https://pronouns.cc/@qlucard)ㅤㅤ‎
+ ‎ㅤ ‎ ‎  ‎ ‎[ata](https://127.atabook.org/)ㅤ [prnscc](https://pronouns.cc/@qlucard)‎
+ 
+ㅤ [1](https://rentry.co/x127) ㅤㅤㅤㅤ‎[2](https://rentry.co/monsterhunterwilds)ㅤㅤㅤㅤ‎ [3](https://rentry.co/monsterhunterwiids)‎
 
 </div>
 <div align="center">
