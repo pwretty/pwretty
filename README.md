@@ -5,13 +5,13 @@
 <p align="center">
 <div align="center">
   
-<img src="https://komarev.com/ghpvc/?username=real-value&color=E481B6&style=flat+square&label=kiss+n+tell" />
+<img src="https://komarev.com/ghpvc/?username=real-value&color=cc0011&style=flat+square&label=make+a+wish" />
 
 <p align="center">
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/2015a44c2f98fcc72f6f915e8b0cb050d3daf75b/IMG_3409.png)
+![](https://github.com/pwretty/pwretty/blob/97d528693ecad73593a4f229c671676d1438eb2f/IMG_3415.png)
 
 <p align="center">
 
