@@ -5,15 +5,14 @@
 <p align="center">
 <div align="center">
   
-<img src="https://komarev.com/ghpvc/?username=real-value&color=F52787&style=flat+square&label=ispy" />
+<img src="https://komarev.com/ghpvc/?username=real-value&color=f52787&style=flat+square&label=10.12+ispy"/>
+
 
 <p align="center">
   
 <div align="center">
 
-![](https://github.com/pwretty/pwretty/blob/54c98efac86fb3cfce0b2fdcae6a1f45a1a3c84c/blur_edges%20(2).png)
-
-omg ew ew this is so low quality stop
+![](https://github.com/pwretty/pwretty/blob/9999cfd28c334caaeb01696022f4dcdc555485c4/blur_edges%20(4).png)
 
 <p align="center">
 
