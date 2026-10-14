@@ -20,7 +20,7 @@
 
  ‎ㅤ ‎ ‎  ‎ ‎[ata](https://127.atabook.org/)ㅤ [prnscc](https://pronouns.cc/@qlucard)‎
  
-ㅤ [1](https://rentry.co/x127) ㅤㅤㅤㅤ‎[2](https://rentry.co/monsterhunterwilds)ㅤㅤㅤㅤ‎ [3](https://rentry.co/monsterhunterwiids)‎
+ㅤ [1](https://rentry.co/neokiss) ㅤㅤㅤㅤ‎[2](https://rentry.co/monsterhunterwilds)ㅤㅤㅤㅤ‎ [3](https://rentry.co/monsterhunterwiids)‎
 
 </div>
 <p align="center">
